@@ -1,0 +1,1 @@
+Esercitazione in laboratorio del 09/05/2016.
